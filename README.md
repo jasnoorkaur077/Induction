@@ -1,5 +1,5 @@
-Name - Jasnoor Kaur
-Father’s name - Nirmal Singh
+- Name - Jasnoor Kaur
+- Father’s name - Nirmal Singh
 Branch - CSE
 Registration number - 2510441
 Mobile number - 8847025254
