@@ -1,9 +1,9 @@
 - Name - Jasnoor Kaur
 - Father’s name - Nirmal Singh
-Branch - CSE
-Registration number - 2510441
-Mobile number - 8847025254
-Email - nooraulakh3507@icloud.com
+- Branch - CSE
+- Registration number - 2510441
+- Mobile number - 8847025254
+- Email - nooraulakh3507@icloud.com
 # Induction
 # Day 1 (31 July 2025)
 ## A Heartwarming Welcome
