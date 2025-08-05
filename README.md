@@ -30,5 +30,12 @@ From 11:30 AM to 1:30 PM, Dr. Priya Darshni took the stage with a heartwarming s
 ## A Day of New Beginnings
 
 Our day kicked off with an engaging first lecture led by our friendly seniors, Jagdeep Kaur and Gurleen Kaur, who introduced us to the basics of C++ in a super interesting way, making coding feel fun and approachable. Next, the second lecture on BEE with Prof. Balwinder Singh was a blast—he gave us a warm intro to the subject and even learned everyone’s names, creating a welcoming vibe. After that, we enjoyed a tasty lunch break to recharge. The afternoon took us to the auditorium, where more exciting sessions awaited!The best part was the expert talk from in the auditorium, where Dr. Priya Darshni Madam shared awesome ideas about “Universal Human Values,” pushing us to be kinder and honest. Finally, the Causmic Club session  in the auditorium was a fun, creative wrap-up, leaving us pumped for more at GNE!
+#Day 5 (5th august, 2025)
+##A spark of learning 
+-The day started with a Chemistry lecture at 9:30 AM by Prof. Mandeep Kaur. She was super sweet and made the class interesting by going over concepts we already knew from school. It was a nice, easy start to the day. Her friendly nature helped us feel comfortable and excited about learning Chemistry.
+At 10:30 AM, Prof. Nisha taught the English lecture. She was very confident and encouraged us to introduce ourselves in English to the whole class. This made us feel more confident and helped us get to know each other. She also shared what we’ll study in the first semester, which was really helpful and fun.
+The last lecture was Mathematics, led by Prof. Gagandeep Kaur. She shared tips on how to study well and do great in college. She made the class interesting by talking about how math connects to everyday life. Her teaching was clear and exciting, making us eager to learn more.
+
+
 
 
