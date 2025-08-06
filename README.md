@@ -35,7 +35,9 @@ Our day kicked off with an engaging first lecture led by our friendly seniors, J
 - The day started with a Chemistry lecture at 9:30 AM by Prof. Mandeep Kaur. She was super sweet and made the class interesting by going over concepts we already knew from school. It was a nice, easy start to the day. Her friendly nature helped us feel comfortable and excited about learning Chemistry.
 At 10:30 AM, Prof. Nisha taught the English lecture. She was very confident and encouraged us to introduce ourselves in English to the whole class. This made us feel more confident and helped us get to know each other. She also shared what we’ll study in the first semester, which was really helpful and fun.
 The last lecture was Mathematics, led by Prof. Gagandeep Kaur. She shared tips on how to study well and do great in college. She made the class interesting by talking about how math connects to everyday life. Her teaching was clear and exciting, making us eager to learn more.
-
+# Day 6 (6th august, 2025)
+## Identity & inspiration
+- 2025, the sixth day of our induction program began with a slow start as we completed ID card photography, a smoothly organized administrative task. After lunch, we attended two engaging lectures in the auditorium. Mr. Grewal, a 1983 Mechanical Engineering alumnus and management member, shared his deep connection to the college, highlighting its achievements and inspiring pride in us. Dr. Lakhvir Singh Khanna then introduced the Central Multifaceted Learning platform, showcasing free online learning opportunities that reflect the college’s commitment to accessible education. The day effectively blended logistics with motivational insights, leaving us enthusiastic about our academic journey.
 
 
 
