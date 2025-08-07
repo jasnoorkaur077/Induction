@@ -38,6 +38,7 @@ The last lecture was Mathematics, led by Prof. Gagandeep Kaur. She shared tips o
 # Day 6 (6th august, 2025)
 ## Identity & inspiration
 - 2025, the sixth day of our induction program began with a slow start as we completed ID card photography, a smoothly organized administrative task. After lunch, we attended two engaging lectures in the auditorium. S. Gurcharan Singh Grewal, a 1983 Mechanical Engineering alumnus and management member, shared his deep connection to the college, highlighting its achievements and inspiring pride in us. Dr. Lakhvir Singh Khanna then introduced the Central Multifaceted Learning platform, showcasing free online learning opportunities that reflect the college’s commitment to accessible education. The day effectively blended logistics with motivational insights, leaving us enthusiastic about our academic journey.
-
-
+# Day 7 (7th august, 2025)
+## Engaging Lectures and Academic Insights at GNE Ludhiana
+- The seventh day of the induction program at Guru Nanak Dev Engineering College, Ludhiana, was an insightful blend of lectures and introductions to college life, beginning with Dr. Parminder Singh, Dean of Student Welfare, who highlighted annual sports, NCC, and NSS events to encourage student participation, followed by Dr. Amit Kamra’s detailed overview of the Digital Marketing Club’s role and opportunities, and Dr. Randhir Singh’s session on examination conduct to clarify academic expectations; after a lunch break from 12:30 PM to 1:30 PM, students attended a mathematics lecture by Prof. Rajbir Kaur, revisiting familiar 12th-grade differentiation concepts, and concluded with a Basic Electrical and Electronics Engineering (BEEE) lecture by Prof. Balwinder Singh, setting a strong foundation for both extracurricular and academic engagement at GNE.
 
