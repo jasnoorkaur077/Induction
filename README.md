@@ -5,7 +5,7 @@
 - Mobile number - 8847025254
 - Email - nooraulakh3507@icloud.com
 # Induction
-# Day 1 (31 July 2025)
+# Day 1 (31st July, 2025)
 ## A Heartwarming Welcome
 
 The induction program at Guru Nanak Dev Engineering College, Ludhiana, began on a serene note at the Gurudwara Sahib, where soulful kirtan shabads created a peaceful and uplifting atmosphere. Next, we enjoyed a warm tea break, sparking friendly conversations among newcomers. At the registration desks, we received vibrant welcome kits before heading to the auditorium, eager for what lay ahead.
@@ -15,7 +15,7 @@ Arshpreet Singh, the IT branch topper, then captivated the audience with an insp
 Harleen Kaur delivered a dynamic speech brimming with emotions like confidence and determination, weaving in powerful quotes and sayings. Parminder Singh, Dean of Student Welfare, emphasized the value of focused studying in achieving one’s dreams. The Principal, Sehijpal Singh, shared words of wisdom about the transformative four-year engineering journey, inspiring students to make the most of it. Ravinder Singh Garg advised the audience to respect parents and teachers and to choose hard work over shortcuts. Kulwinder Singh Maan, Head of the IT Department, spoke briefly about the enriching college experience awaiting students.
 The program concluded with               , the Finance Adviser, providing detailed information about government education loans and guidance on waiving additional charges. As the event drew to a close, the freshers left the auditorium filled with enthusiasm, ready to embark on their college journey with renewed motivation and a sense of purpose, eager to shape their futures with the wisdom imparted by the esteemed speakers.
 
-# Day 2: August 1, 2025
+# Day 2: (1st August, 2025)
 ## Empowerment and Enlightenment
 
 Hosted by the dynamic Harleen Kaur, Day 2 at Guru Nanak Dev Engineering College, Ludhiana, sparkled with inspiration. Manoj Kumar, from Buddy4Study Foundation since 2017, unveiled the transformative Satya Scholarship Program, backed by Nehru Sidhant Kender Trust. Partnered with over 200 entities—corporations, governments, banks, and universities—it has disbursed ₹630+ crore, uplifting 128,000+ Indian scholars.
